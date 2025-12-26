@@ -105,7 +105,7 @@ No new episodes since March 2024, but some good sessions by the West Midlands CA
 
 ### PHEMCast
 
-[Website]() | [Apple]() | [Spotify]() | [Pocket Casts](https://pocketcasts.com/podcast/phemcast/41587910-42b1-0133-bfa0-0d11918ab357)
+[Website](https://phemcast.co.uk/) | [Apple](https://podcasts.apple.com/gb/podcast/phemcast/id1041456093) | [Spotify](https://open.spotify.com/show/1nCu3lZbYCckOtkdLxTIqO) | [Pocket Casts](https://pocketcasts.com/podcast/phemcast/41587910-42b1-0133-bfa0-0d11918ab357)
 
 While there have been no new episodes since 2023, there's a lot of good PHEM topics covered in their old episodes.
 
